@@ -1,1 +1,2 @@
-stream dir en grey for clear skin❤️
+hi im zak
+main interests are currently visual kei, unstable smp, drain gang
